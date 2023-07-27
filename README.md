@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## Olá! Eu sou o Fernando Carvalho 🖐️
+## Eu sou o Fernando Carvalho 🖐️
 
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/fcarvalho_2906)
