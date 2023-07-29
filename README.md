@@ -1,7 +1,13 @@
 ### Hi there 👋
 
-## Eu sou o Fernando Carvalho 🖐️
+## I'm Fernando Carvalho 🖐️
 
+I would like to talk little me:
+I have more 15 years of experience professional, where learn much process and matter understand how know people.
+My dream is can a transition carrer and I go perform.
+I'm studying English a little time, start in march 2023 and I happy with my evolution, because writh this text allone (Sorry for wrong in lyrics, but I'm truth and I don't afreid of learn. 
+
+Thanks.
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/fcarvalho_2906)
 [![Youtube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/channel/UCR3lcs0OKA0UydLYCFrfwDw)
